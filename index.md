@@ -1,3 +1,6 @@
-# Welcome to my blog
+# Welcome to my Fuckoff Blog
 
-I'm glad you are here. I plan to talk about ...
+Not glad you are here, but will act like I am. 
+I don't really know what else to say here. 
+
+Goodbye.
